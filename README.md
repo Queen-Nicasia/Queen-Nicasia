@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ManaalHameed
+- 👀 I’m interested in Coding, Computers, and Games
+- 🌱 I’m currently learning Programming and Business
+- 📫 Reach me at manaalhameed021@gmail.com
